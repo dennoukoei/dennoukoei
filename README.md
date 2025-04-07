@@ -1,5 +1,5 @@
 # About me
-- Project Management
+- Project Manager
 
 
 
